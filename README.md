@@ -1,2 +1,0 @@
-# Preguntasgenesis
-Preguntas de genesis 
